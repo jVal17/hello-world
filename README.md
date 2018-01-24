@@ -1,2 +1,2 @@
 # hello-world
-assignment for 3350
+assignment udergraduate computer science student  
